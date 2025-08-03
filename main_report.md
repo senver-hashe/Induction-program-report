@@ -1,4 +1,4 @@
-# Induction Day Report
+# Induction Day - 3 Report
 ## Lecture 1 - by Dr. Jaswinder singh
 The lecture given by Dr. Jaswinder singh was amazing. The students in the auditorium really seem to have enjoyed it and learned a lot from it. He presented his diverse views on God and science and how it is connected in various ways. He showed us a lot of Math tricks. Not only his knowledge of science, nature and God was insightful but his teachings were wise as well. But the most intriguing thing about him was his energy which was incomparable. He was also being humorous at certain points to help us relax. In summary, He did a splendid job and We learned a lot from him.
 
