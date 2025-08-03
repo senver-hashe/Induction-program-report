@@ -1,0 +1,6 @@
+# Induction Day Report
+## Lecture 1 - by Dr. Jaswinder singh
+The lecture given by Dr. Jaswinder singh was amazing. The students in the auditorium really seem to have enjoyed it and learned a lot from it. He presented his diverse views on God and science and how it is connected in various ways. He showed us a lot of Math tricks. Not only his knowledge of science, nature and God was insightful but his teachings were wise as well. But the most intriguing thing about him was his energy which was incomparable. He was also being humorous at certain points to help us relax. In summary, He did a splendid job and We learned a lot from him.
+
+## Lecture 2 By Dr. Priya Darshni Madam
+The second lecture was great as well, It was quite different from the first one and a different experience. She educated us with her knowledge on human values and step by step, she taught us about goals, values and purpose of life. The step by step process was different from the first lecture and we appreciated it. I really reflected on myself and the values she taught to us. Her step by step guide helped us to understand and make the concepts clear. At first, although it felt like she was quiet and slow but her lecture gradually build up and ended with a meaningful takeaway. I'm looking forwards to more of her lectures.
