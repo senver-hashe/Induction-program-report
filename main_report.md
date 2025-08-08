@@ -1,3 +1,19 @@
+# Induction Day - 1 Report
+30th July 2025 marked my first official day as a student at Guru Nanak Dev Engineering College, Ludhiana and it was a good start.
+
+The day began on a peaceful note with Path and Kirtan at the College Gurudwara Sahib. It set a calm tone before diving into introductions and new faces.
+
+In the auditorium, we got our first  glimpse of the college’s story which was well told and I was excited. One of the standout moments for me was the welcome address by Dr. Harpreet Kaur Grewal. She spoke about building a strong academic base, but what struck me most was her emphasis on making the most of the diverse opportunities here. It felt less like a speech and more like a roadmap for the years ahead.
+
+Our Principal, Dr. Sehijpal Singh, shared the bigger insights, from research culture to industry collaborations. We could see his pride in the institution, and it was motivating to think of how much is possible here if we work hard.
+
+The chief guest, Sardar Maheshinder Singh Grewal, added a different kind of weight to the day thats was telling about  values like discipline, hard work, and service to society. It was a reminder that what we do here goes far beyond the classroom.
+
+We wrapped up with departmental orientation visits, meeting our faculty and getting a first look at the facilities. We also explored the campus, For me, this part made it real seeing the labs, the workspaces, and imagining what the next few years could look like.
+
+# Induction Day - 2 Report 
+I was unfortunately not able to come that day because I was sick so I could report that day.
+
 # Induction Day - 3 Report
 ## Lecture 1 - by Dr. Jaswinder singh
 The lecture given by Dr. Jaswinder singh was amazing. The students in the auditorium really seem to have enjoyed it and learned a lot from it. He presented his diverse views on God and science and how it is connected in various ways. He showed us a lot of Math tricks. Not only his knowledge of science, nature and God was insightful but his teachings were wise as well. But the most intriguing thing about him was his energy which was incomparable. He was also being humorous at certain points to help us relax. In summary, He did a splendid job and We learned a lot from him.
@@ -18,3 +34,4 @@ new courses and other important details, most of the teachers instead of burdeni
 
 # Induction day - 6 report
 The day started as normal but as the induction programme started, I was already feeling like new things to learn were there.
+## Lecture by prf Lakhvir singh
