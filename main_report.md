@@ -34,4 +34,15 @@ new courses and other important details, most of the teachers instead of burdeni
 
 # Induction day - 6 report
 The day started as normal but as the induction programme started, I was already feeling like new things to learn were there.
-## Lecture by prf Lakhvir singh
+
+## Lecture by prof. Lakhvir singh
+Professor Lakhvir singh introduced us to CML where we can learn different things, and he tells about different things like joining CML and it was great, CML is obviously an opportunity to learn new things, to learn things like leadership, teamwork, management and even other significant skills. It is always great of GNE to tell us these different things and I always like it, at start it feels just out of blue and completely random but then it starts to make sense and why it's important, I'll definitely consider joining CML for sure.
+
+# Induction day - 7 report 
+## Starting introduction to different GNE facilities by Dr. Parminder singh
+Another great experience learning about GNE, as I would definitely require this valueable knowledge and I'm greatful for it.
+## Lecture by Dr. Amit Kamra
+Another fabulous lecture given by and a fabulous introduction to one of the new clubs of DMC, though it was not much to those who don't want to join, but I'll definately consider it so I listened clearly and I was thrilled by the club like I've always been.
+DMC is basically Digital Marketing Club which also manages the social media of GNE and I think it is great of GNE for introducing this. Many students who want to aspire to be a successful person will definitely require DMC's skills. Although at the time, the club is small but I'm sure of it that it'll grow eventually.
+## The last lecture on conduct of examination by Dr. Randhir Singh
+The last lecture was very informative. Dr. Randhir Singh not only explained the conduct of examinations in detail, including the rules, procedures, and guidelines to be followed, but also guided us through the official college website. He showed us how to access important sections such as notices, results, and academic resources. In addition, he provided information about mid-semester tests, assignments, and their submission processes, along with the evaluation criteria. The session was quite helpful in understanding the academic requirements and how to stay updated throughout the semester.
